@@ -1,3 +1,5 @@
+‼️ www.linktr.ee.com/daartsx ‼️
+
 - 👋 Hi, I’m @DaArtsX
 - 👀 I’m interested in everything but Ubisoft games (I can't fucking stop playing R6, Ubi fix that mess)
 - 🌱 I’m currently learning nothing
