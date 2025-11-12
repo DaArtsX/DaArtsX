@@ -1,4 +1,4 @@
-‼️ https://linktr.ee/daartsx ‼️
+‼️ [Reach Out!](https://guns.lol/artsx) ‼️
 
 - 💪Currently working on QUOD💪
 
