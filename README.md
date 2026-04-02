@@ -1,6 +1,6 @@
 ‼️ [Reach Out!](https://guns.lol/artsx) ‼️
 
-- 💪Currently working on QUOD💪
+- 💪Currently working on C.O.O.💪
 
 <!---
 DaArtsX/DaArtsX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
